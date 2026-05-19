@@ -1,4 +1,4 @@
-# 
+# updated Visual Studio para PC executor é o melhor Visual Studio para PC executor com gerenciamento de índices e emulador Android. Seguro, confiável e otimizado para máximo
 
 
 
